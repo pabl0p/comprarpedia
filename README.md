@@ -6,7 +6,7 @@ Hace no muchos años cualquier persona que quisiera escanear e imprimir document
 
 Por fortuna, hoy en día ya es posible disponer de estas dos funcionalidades en un único dispositivo, para mayor comodidad de los usuarios.
 
-## ¿Qué diferentes tipos de impresoras baratas para escanear e imprimir existen?
+## ¿Cuáles son los tipos de impresoras baratas para escanear e imprimir?
 
 En el mercado podemos encontrar diferentes tipos de impresoras multifunción, siendo su reducido precio uno de los aspectos que más llama la atención, ya que hoy en día son mucho más asequibles que antaño.
 
